@@ -1,9 +1,9 @@
-- 👋 Hi, I’m @zazalalleroa simple rotten elf
+- 👋 Hi, I’m @zazalallero a simple rotten elf
 - 👀 I’m interested in ... creating 🤝muhahahahh-
-- 🌱 I’m currently learning ...everithing
+- 🌱 I’m currently learning ...everything
 - 💞️ I’m looking to collaborate on ...whatherver
-- 📫 How to reach me ...3490023613 whatsapp
-- 😄 Pronouns: ... gazza 
+- 📫 How to reach me ... --cartomanziatopo@gmail.com--
+- 😄 Pronouns: ... gazza, ulisses dantes, cucaracha, gazzalahzar, 
 - ⚡ Fun fact: ... i saved the earth once... and still can't spell on an ordinator 😄
 
 <!---
