@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...whatherver
 - 📫 How to reach me ...3490023613 whatsapp
 - 😄 Pronouns: ... gazza 
-- ⚡ Fun fact: ... i saved the earth once...
+- ⚡ Fun fact: ... i saved the earth once... and still can't spell on an ordinator 😄
 
 <!---
 zazalallero/zazalallero is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
